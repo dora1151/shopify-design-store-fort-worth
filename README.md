@@ -1,1 +1,0 @@
-# shopify-design-store-fort-worth
